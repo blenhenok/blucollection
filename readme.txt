@@ -1,0 +1,1 @@
+My website focuses on fashion trends.
